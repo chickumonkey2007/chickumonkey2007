@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @chickumonkey2007
-- 👀 I’m interested in reading comics, coding, playing video games
-- 🌱 I’m currently learning senier school
+- 👀 I’m interested in reading comics, coding, playing video games,more interested in behaviour of different people 
+- 🌱 I’m currently learning senior school
 - 💞️ I’m looking to collaborate on Indian instittute of Technology, and lot more dreams
 - 📫 How to reach me ...
 
